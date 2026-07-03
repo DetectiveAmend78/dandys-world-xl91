@@ -1,4 +1,4 @@
-# 
+# Experience dandy's world like never before with dandy's world updated Scripts, the #1 Script. Includes speed and teleport for unbeatable performance.
 
 
 
